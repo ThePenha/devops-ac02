@@ -1,2 +1,2 @@
 # Melhores Atletas
-Shirley da Silva Pinheiro
+Fernanda Garay
